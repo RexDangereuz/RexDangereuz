@@ -1,0 +1,9 @@
+- 👋 Hola,soy RexDangereuz
+- 
+- 👀 Me interesa aprender cada dia mas de PHYTON y programo JAVA
+- 
+- 🌱 Normalmente creo servidores de MINECRAFT y de DISCORD, con los cuales gano dinero
+- 
+- 💞️ Estoy ahora mismo en mi empresa *SYNISTER STUDIOS* aqui os dejo el link para que se unan → https://discord.gg/MfhFkcmZkh
+- 
+- 🖥️ No ayudo gratis, los codigos seran de paga OJO si veo mis codigos rondando por alli te llevaras una DOXEADA :) 
